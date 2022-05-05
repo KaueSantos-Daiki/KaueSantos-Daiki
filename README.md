@@ -8,6 +8,8 @@
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I fell in love with idols when I watched the Start:DASH!! performance by μ's in Love Live! My eyes started to shiny, and I'm exactly here, being an idol! Fufu~! (I also like Miku, Wasuta, BanG Dream, K-on, D4DJ, Revue Starlight, Idolm@ster, and these stuffs)
 
+-MOTTO MOTTO, FAITO DAYO! 🎶🎉😼👊✨
+
 <!--
 **KaueSantos-Daiki/KaueSantos-Daiki** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
