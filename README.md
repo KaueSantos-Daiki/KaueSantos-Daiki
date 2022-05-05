@@ -1,4 +1,4 @@
-### Hello-nyaan~! Daiki you favorit neko dolphin idol is here!!
+### Hello-nyaan~! Daiki you favorite neko dolphin idol is here!!
 - 🔭 I’m currently working on my stuffs
 - 🌱 I’m currently learning school subjects and Idol things
 - 👯 I’m looking to collaborate with other Idols
