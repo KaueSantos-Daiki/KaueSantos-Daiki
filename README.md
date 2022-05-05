@@ -4,7 +4,7 @@
 - 👯 I’m looking to collaborate with other Idols
 - 🤔 I’m looking for help with Idols
 - 💬 Ask me about Idols and Love Live!
-- 📫 How to reach me: Why do you want to reach me?
+- 📫 How to reach me: Why do you want to reach me? You know It's easier to me reach your feeling right? Then it will be easier for you to reach me... What about a Live Concert???
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I fell in love with idols when I watched the Start:DASH!! performance by μ's in Love Live! My eyes started to shiny, and I'm exactly here, being an idol! Fufu~! (I also like Miku, Wasuta, BanG Dream, K-on, D4DJ, Revue Starlight, Idolm@ster, and these stuffs)
 
