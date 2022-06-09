@@ -12,16 +12,17 @@ p{
 h1{
     font-family: Arial, sans-serif;
     font-size: 40px;
-    border: 5px double black;
+    text-align: center;
     color: #042c3f;
 }
 
 h2{
     font-family: Arial, sans-serif;
     font-size: 30px;
+    text-align: center;
     color: #042c3f;
 }
 
 img{
     text-align: center;
-}
+}  
